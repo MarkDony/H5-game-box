@@ -9,5 +9,5 @@
 * [Tiktokgames](https://tiktokgames.vip)
 
 ## APK SITE
-* [Liteapks](liteapks.homes)
-* [Apkpure](apkpure.homes)
+* [Liteapks](https://liteapks.homes)
+* [Apkpure](https://apkpure.homes)
