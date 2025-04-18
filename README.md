@@ -5,6 +5,7 @@
 * [Royalkingdom](https://Royalkingdom.xyz)
 * [Poki](https://poki.homes)
 * [Crazygames](https://crazygames.homes)
+* [Sprunki Game](https://sprunki.sbs)
 * [Pokigames](https://pokigames.vip)
 * [Tiktokgames](https://tiktokgames.vip)
 
